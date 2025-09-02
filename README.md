@@ -1,1 +1,5 @@
-# Pusula_Huseyin_Canik
+# Name:   Hüseyin Canık
+
+# Gmail:  hcanik8@gmail.com
+
+
